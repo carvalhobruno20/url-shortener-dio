@@ -16,4 +16,4 @@ Algumas informações sobre os vídeos:
 
 Informações pessoais:
 
-- Meu linkedin: https://www.linkedin.com/in/carvalhobruno20/
+- Meu linkedin: https://www.linkedin.com/in/brunocarvalho20/
